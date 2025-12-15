@@ -87,7 +87,6 @@ Ansh Kumar Sonker
 
 LinkedIn: https://www.linkedin.com/posts/anshsonker89_powerbi-dataanalytics-datavisualization-activity-7406261278379368448-NhSQ?utm_source=social_share_send&utm_medium=android_app&rcm=ACoAAGGNCq4BA5ToI7tpqd7A77GPCsup8RQtPRE&utm_campaign=copy_link
 
+<img width="1788" height="811" alt="Screenshot 2025-12-15 224518" src="https://github.com/user-attachments/assets/24951280-2edd-4e35-94ee-950edd182b09" />
 
-
-<img width="1789" height="804" alt="Screenshot 2025-12-15 142619" src="https://github.com/user-attachments/assets/2561c6a5-d796-4fb3-9394-7e640543700f" />
 
